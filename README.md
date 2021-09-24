@@ -5,7 +5,7 @@
 
 A Few Quick Facts:
 
- - 🎿 I'm based in Park City, UT (but I'll always be a New Yorker)
+ - 🎿 I'm based in Park City, UT (but I'm a die-hard New Yorker).
  - 💻 Hack Reactor graduate. I was voted Class Speaker and delivered our cohort's graduation speech.
  - ⛹️‍♀️ I love basketball. I love mentorship. I'm fortunate to combine those two as a volunteer basketball coach.
 
